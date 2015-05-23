@@ -1,0 +1,1 @@
+Punto de venta para pequeños negocios de venta al público.
